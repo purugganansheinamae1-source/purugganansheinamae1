@@ -35,7 +35,7 @@ I’m passionate about learning, creating, and improving my skills through techn
 
 ## 📫 Let’s Connect
 - 📧 Email: purugganansheinamae1@gmail.com  
-- 🌐 GitHub: github.com/purugganansheinamae1 (https://github.com/purugganansheinamae1)
+- 🌐 GitHub: https://github.com/purugganansheinamae1
 
 ---
 
