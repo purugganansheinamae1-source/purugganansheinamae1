@@ -34,8 +34,8 @@ I’m passionate about learning, creating, and improving my skills through techn
 ---
 
 ## 📫 Let’s Connect
-- 📧 Email: *your-email@example.com*  
-- 🌐 GitHub: [github.com/yourusername](https://github.com/yourusername)
+- 📧 Email: purugganansheinamae1@gmail.com  
+- 🌐 GitHub: github.com/purugganansheinamae1 (https://github.com/yourusername)
 
 ---
 
